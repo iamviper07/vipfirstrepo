@@ -1,1 +1,1 @@
-uhii koi bewafa nii hta
+sbki ek wajah hti h
